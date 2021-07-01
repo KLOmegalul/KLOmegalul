@@ -1,0 +1,4 @@
+- Yo, I'm KLO
+- Nothing really special about me
+- Looking to learn about game programming
+- Usually on twitter @KLOmegalul
