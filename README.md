@@ -1,3 +1,3 @@
-- i go by KLO
-- nothin much goin on in my head
-- trying to learn how to make video games
+Worked as a Video editor for 2+ years
+Currently studying ICT
+Hoping to continue studying a bachelors in computer science
