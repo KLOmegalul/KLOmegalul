@@ -1,4 +1,4 @@
-Worked as a Video editor for 2+ years
+Working as a Video editor for 2+ years
 
 Currently studying ICT
 
